@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
--I'm Suthiksha 👧🏽
+- I'm Suthiksha 👧🏽
 
--I'm currently pursuing my undergraduate in B.Tech CSE 💻
+- I'm currently pursuing my undergraduate in B.Tech CSE 💻
 
--Outside the world of tech too. I love pursuing myself to develop new skills 🚀
+- Outside the world of tech too. I love pursuing myself to develop new skills 🚀
